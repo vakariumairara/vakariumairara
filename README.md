@@ -1,4 +1,4 @@
-### umairaravakari
+### - **Discord**: [umairaravakari](https://discord.com/users/umairaravakari)
 
 <!--
 **vakariumairara/vakariumairara** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
